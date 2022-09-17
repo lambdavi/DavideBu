@@ -1,4 +1,4 @@
-- ⚙ Hi, I’m @DavideBu
+- ⚙ Hi, I’m @LambDa(Vi)
 - 👀 I’m interested in AI
 - 🌱 I’m currently studying at Politecnico di Torino
 
